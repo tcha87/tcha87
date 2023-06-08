@@ -1,4 +1,4 @@
-# Hey there! I'm Nikos. 👋
+# Hey there! I'm Dre. 👋
 
 ## 👨🏻‍💻 About Me
 
